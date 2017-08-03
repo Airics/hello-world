@@ -2,4 +2,4 @@
 
 Hi Humans!
 
-Airics here, I like Cheetos.
+Airics here, I like cheetos.
